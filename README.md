@@ -1,1 +1,1 @@
-# TTS_Grafkom_G_672018145
+Imanuel Noval Amanda Prahara 672018145
